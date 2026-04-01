@@ -1,1 +1,3 @@
+# Against the Bernsteinist Opportunism of the MAGA Communism
 
+The movement of revolutionary socialism is no stranger to the challenges of organization in the imperial core. A combination of proximity hegemonist finance and military, decades of anticommunist propoganda, and even esocial-chauvinism from within "leftists" have resulted in stagnated and splintered parties and organizations in modern United States history. Among western socialist movements, the so-called MAGA "Communists" have gained notoriety for their peculiar approach of dealing with these hurdles of socialist agitation in the heart of the American Empire.
